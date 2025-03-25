@@ -1,3 +1,3 @@
 ## .github
 
-Oglądaj Anora (2025) cda cały film za darmo - Anora Film Online HD po polsku, 
+Oglądaj Anora (2025) cda cały film za darmo - Anora Film Online HD po polsku, Anora caly film cda. Oglądaj film Anora online. 
